@@ -1,1 +1,1 @@
-Evrything goes here!
+Everything goes here!
